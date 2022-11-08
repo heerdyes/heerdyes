@@ -1,3 +1,3 @@
 - Interests: crafting appropriate technology from scratch
-- Currently learning analog electronics
+- Currently dreaming of starting a hackerspace!
 - For collabs/queries reach out to: fractalautomatawaveband@gmail.com

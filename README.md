@@ -1,3 +1,3 @@
 - Interests: crafting appropriate technology from scratch
-- Currently dreaming of starting a hackerspace!
+- Currently dreaming of starting a makerspace!
 - For collabs/queries reach out to: fractalautomatawaveband@gmail.com
